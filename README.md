@@ -11,4 +11,4 @@ im a minor just so you know pls dont make weird jokes about ME. 😿
 
 
 
-![](
+![](https://github.com/mandysleftsock077/SOCKSLife/blob/main/cat-gif-loop-ice_grande.gif)
